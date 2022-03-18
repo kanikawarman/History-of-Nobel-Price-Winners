@@ -1,0 +1,2 @@
+# History-of-Nobel-Price-Winners
+The Nobel Prize is the world's most well known scientific award. Every year it's given to scientists and scholars in the categories chemistry, literature, physics, physiology or medicine, economics, and peace. The first Nobel Prize was handed out in 1901, and at that time the Prize was very Eurocentric and male-focused, but nowadays it's not biased in any way. Exploring various insights of the nobel prize winners
